@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ValyaNotProogrammist
+- 👋 Hi, I’m @ValiaIsNotProgrammer or Valentine Chernykh
 - 👀 I’m interested in Machine Learning: DeepLearning, AI; Python Developmen; Mathematics;
 - 💞️ I’m looking to collaborate on if you are either ready to give difficult, but also interesting tasks, or are ready to take an student in order to teach him
 - 📫 How to reach me - Telegram: @ValiaBlack, @Valia_Black; Mail: ValiaChernich@yandex.ru; Facebook: https://www.facebook.com/valentine.val.7773/
